@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jenny
-- 👩🏻 23 years old
-- 👸🏻 plan to be single forever 🤍
+- 23 years old
+- plan to be single forever 🤍
 - ✨ I'm a Chritian ✞
 - I'm a Skill Hunter!
 - Enjoy learning new things
